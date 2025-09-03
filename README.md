@@ -1,1 +1,1 @@
-# BrideLabz-Training-3Y
+# BridgeLabz Training
